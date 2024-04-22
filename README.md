@@ -14,7 +14,6 @@ I'm Muhammad Haris Hameed, a passionate Virtual Assistant based in Karachi, Paki
 - Product Development 
 - Supplier Management
 - Supply Chain Management
-- Profitable Products
 
 ## Get in Touch
 📫 You can reach me via [email](mailto:mmharishameed@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/mharishameed/).
